@@ -1,1 +1,0 @@
-# Exam in CCOBJPGL INF227
